@@ -1,0 +1,1 @@
+# MOO-WEB-Technology-Sagyngali-Kurmangazy
